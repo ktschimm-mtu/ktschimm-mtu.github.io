@@ -1,3 +1,1 @@
-# Kieran Schimmel
-
 [May 25, 2021] - Under maintenance. Please check back later for an updated status.
